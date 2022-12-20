@@ -4,7 +4,7 @@
 
 you can contact me here👇
 
-'[![Contact us on WhatsApp](https://img.shields.io/badge/-Contact%20us%20on%20WhatsApp-brightgreen)](https://wa.me/+919961753799)'
+'[![Contact us on WhatsApp](https://img.shields.io/badge/-Contact%20us%20on%20WhatsApp-brightgreen)](https://wa.me/+919961753799?text=Hai+vroh🫠)'
 
 
 insta👋🏻 
